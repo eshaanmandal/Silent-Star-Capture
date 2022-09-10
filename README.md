@@ -1,1 +1,1 @@
-# Silent-Star-Capture
+# Noiseless Astrophotography
